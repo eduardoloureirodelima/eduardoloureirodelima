@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @eduardoloureirodelima
-- 👀 I’m interested in ... aprender 
+- 👀 I’m interested in ... ser engenheuiro civil ou montagem de computadores 
 - 🌱 I’m currently learning ... matérias diferentes
 - 💞️ I’m looking to collaborate on ... jogos , aulas 
 - 📫 How to reach me ..me procura no call of duty meleepotentx S2.
